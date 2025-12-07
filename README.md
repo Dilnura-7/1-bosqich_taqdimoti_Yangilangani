@@ -1,0 +1,2 @@
+# 1-bosqich_taqdimoti_Yangilangani
+1-bosqich_taqdimoti_Yangilangani
